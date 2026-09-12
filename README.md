@@ -22,4 +22,4 @@
  <p align="center"> ᡕᠵデᡁ᠊╾━ &nbsp;𝚃𝙲𝙲 &nbsp;btw ⊹ ࣪ ˖ ໒꒱
   <p align="center"> ((i &nbsp;dont &nbsp;condone &nbsp;or &nbsp;glorify &nbsp;them &nbsp;lolz &nbsp;ˎˊ˗
 
-   ![](https://komarev.com/ghpvc/?username=your-rxvcnge&color=000000&sytle=plastic&label=bullets+<3)
+  ![](https://komarev.com/ghpvc/?username=your-rxvcnge&color=000000&sytle=plastic&label=bullets+<3)
