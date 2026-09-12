@@ -4,8 +4,9 @@
    <img src="https://github.com/sunshineboyisleeping/ADrugAgainstWar/blob/main/BULLET.gif" width="50" height="50" />
    kevin &nbsp; he&nbsp; / &nbsp; they &nbsp;! 
 
-<img src="https://github.com/sunshineboyisleeping/sunshineboyisleeping/blob/main/dylan%20heart.png" width="60" height="60" />
+<img src="https://github.com/sunshineboyisleeping/sunshineboyisleeping/blob/main/dylan%20heart.png" width="85" height="85" />
   
+
   
   <img src="https://github.com/rxvcnge/rxvcnge/blob/main/0day%20film.webp" width="400" height="500" />
   <img src="https://github.com/rxvcnge/rxvcnge/blob/main/0day%20spanking.gif" width="260" height="260" />
