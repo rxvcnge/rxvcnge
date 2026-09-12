@@ -11,3 +11,6 @@
   <img src="https://github.com/rxvcnge/rxvcnge/blob/main/0day%20film.webp" width="400" height="500" />
   <img src="https://github.com/rxvcnge/rxvcnge/blob/main/0day%20spanking.gif" width="260" height="260" />
   
+<p align="center"> <img src="https://github.com/rxvcnge/rxvcnge/blob/main/skullz%20n%20hearts.png" width="700" height="700" />
+<p align="center"> <img src="https://github.com/rxvcnge/rxvcnge/blob/main/andre%20stamp.gif" width="300" height="300" />
+ <img src= "https://github.com/rxvcnge/rxvcnge/blob/main/CAL%20SHIRT.gif" width="100" height="100" /> <img src="https://github.com/rxvcnge/rxvcnge/blob/main/ANDRE%20SHIRT.gif" width="85" height="85" />
