@@ -12,5 +12,8 @@
   <img src="https://github.com/rxvcnge/rxvcnge/blob/main/0day%20spanking.gif" width="260" height="260" />
   
 <p align="center"> <img src="https://github.com/rxvcnge/rxvcnge/blob/main/skullz%20n%20hearts.png" width="700" height="700" />
-<p align="center"> <img src="https://github.com/rxvcnge/rxvcnge/blob/main/andre%20stamp.gif" width="300" height="300" />
- <img src= "https://github.com/rxvcnge/rxvcnge/blob/main/CAL%20SHIRT.gif" width="100" height="100" /> <img src="https://github.com/rxvcnge/rxvcnge/blob/main/ANDRE%20SHIRT.gif" width="85" height="85" />
+<p align="center"> <img src="https://github.com/rxvcnge/rxvcnge/blob/main/andre%20stamp.gif" width="100" height="100" />
+ <img src= "https://github.com/rxvcnge/rxvcnge/blob/main/CAL%20SHIRT.gif" width="100" height="100" /> 
+  <img src="https://github.com/rxvcnge/rxvcnge/blob/main/ANDRE%20SHIRT.gif" width="85" height="85" /> me &nbsp;& &nbsp;ethan &nbsp;<3
+  <img src="https://github.com/rxvcnge/rxvcnge/blob/main/KNIFE.gif" width="70" height="70" />
+  <img src="https://github.com/rxvcnge/rxvcnge/blob/main/DOG%20TAG.gif" width="50" height="50" />
