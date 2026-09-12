@@ -17,3 +17,7 @@
   <img src="https://github.com/rxvcnge/rxvcnge/blob/main/ANDRE%20SHIRT.gif" width="85" height="85" /> me &nbsp;& &nbsp;ethan &nbsp;<3
   <img src="https://github.com/rxvcnge/rxvcnge/blob/main/KNIFE.gif" width="70" height="70" />
   <img src="https://github.com/rxvcnge/rxvcnge/blob/main/DOG%20TAG.gif" width="50" height="50" />
+
+![](https://komarev.com/ghpvc/?username=rxvcnge&color=2D2D2D)
+![](https://komarev.com/ghpvc/?username=rxvcnge&style=plastic)
+![](https://komarev.com/ghpvc/?username=rxvcnge&label=ZERO+DAY)
