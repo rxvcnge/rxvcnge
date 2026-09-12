@@ -18,4 +18,4 @@
   <img src="https://github.com/rxvcnge/rxvcnge/blob/main/KNIFE.gif" width="70" height="70" />
   <img src="https://github.com/rxvcnge/rxvcnge/blob/main/DOG%20TAG.gif" width="50" height="50" />
 
-  >![](https://komarev.com/ghpvc/?username=your-rxvcnge&color=000000&sytle=plastic&label=bullets+<3)
+  ![](https://komarev.com/ghpvc/?username=your-rxvcnge&color=000000&sytle=plastic&label=bullets+<3)
