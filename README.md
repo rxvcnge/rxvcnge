@@ -6,4 +6,4 @@
 
 <img src="https://github.com/sunshineboyisleeping/sunshineboyisleeping/blob/main/dylan%20heart.png" width="80" height="80" />
   
-![](https://komarev.com/ghpvc/?username=tyzmle&label=guns&color=000000
+
